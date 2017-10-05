@@ -1,1 +1,1 @@
-# Lucie-Flore is an engineering student at Centrale Paris. She is Cameroonian from Yaoundé.
+# Lucie-Flore is an engineering student at Centrale Paris. She is Cameroonian from Yaoundé
